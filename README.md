@@ -1,6 +1,8 @@
 - 👋 Hi, I’m @alonso510
 
 📍 Richmond, California 
+
+
 Student @ Middle Tennessee State University
 
 🇲🇽
