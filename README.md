@@ -2,6 +2,7 @@
 
 📍 Richmond, California 
 Student @ Middle Tennessee State University
+
 🇲🇽
 
 <!---
