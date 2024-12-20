@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @alonso510
+ 👋 Hi, I’m @alonso510
 
 📍 Richmond, California 
 
