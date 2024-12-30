@@ -3,7 +3,7 @@
 📍 Richmond, California 
 
 
-Student @ Middle Tennessee State University
+Alumni @ Middle Tennessee State University
 
 🇲🇽
 
